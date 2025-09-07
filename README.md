@@ -21,6 +21,10 @@
 
 --- 
 
+![BI- DigiSkills_Certificate__page-0001](https://github.com/user-attachments/assets/ef8ea36a-2a7d-4b59-a28e-42cbad0646cd)
+
+--- 
+
 ![_JPMorgan Chase   Co  completion_certificate_page-0001](https://github.com/user-attachments/assets/6a109e79-284b-4e19-8222-c572c758586e)
 
 --- 
