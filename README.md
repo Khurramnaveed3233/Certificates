@@ -1,7 +1,6 @@
 # Certificates
 
-<img width="867" height="675" alt="Google AI Essentials Professional Certificate" src="https://github.com/user-attachments/assets/11fdaf2e-b899-4696-9903-1a2ad0e435dd" />
-
+<img width="872" height="675" alt="Google AI Essentials Professional Certificate" src="https://github.com/user-attachments/assets/014650d9-65cf-483c-aee1-448e361b3d98" />
 
 <img width="892" height="696" alt="Google AI Essentials V1badge" src="https://github.com/user-attachments/assets/66bec9c0-5a21-4d17-a53b-87ba791f5e3e" />
 
